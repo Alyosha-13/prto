@@ -1,2 +1,0 @@
-# prto
-buat tugas ngap
